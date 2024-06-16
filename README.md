@@ -1,1 +1,1 @@
-# introduction Cognitive Science Student, Artist, Writer Interested in Neurotech and Assistive Technology
+Cognitive Science Student, Artist, Writer Interested in Neurotech and Assistive Technology
